@@ -1,5 +1,5 @@
 ## Marcelo Gustavo Bello
-![Texto alternativo](C:\Users\Usuario\Desktop\self.jpg)
+![self](https://user-images.githubusercontent.com/80929592/111886801-526ba300-89af-11eb-8f70-7f4b2e91ffc8.jpg)
 
 ### About - Me Formal
 - Edad: 20 años
